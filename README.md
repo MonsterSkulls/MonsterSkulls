@@ -8,7 +8,8 @@ I am inclusive of Good Faith identities. Such as LGBTQ+ (contradictory identitie
 
 **BYI / Before You Interact**: 
 - I often wait for people to say things to me first to know if they want to interact.
-- I don't mind being "booped" or "kissed" in games, though if it happens excessively I may ask you to stop or hide you.
+- I don't mind being "booped" or "kissed" in game, though if it happens excessively I may ask you to stop or hide you.
+- If I change to a grass/dirt/water colored pony, I do not want to be interacted with.
 - I don't like being tightly packed in large crowds. If a crowd grows too much I may move or leave.
 - I will automatically hide ponies that are too NSFW for my comfort.
 - Please ask before talking about ship related things if I'm playing a cosplay character.
