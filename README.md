@@ -1,4 +1,4 @@
-MonsterSkulls - It/He/They
+MonsterSkulls - It/He/They (or whatever pronouns are in my name at the time)
 
 Please use masculine or gender neutral terminology when referring to me.
 
@@ -13,6 +13,7 @@ I am inclusive of Good Faith identities. Such as LGBTQ+ (contradictory identitie
 - I will automatically hide ponies that are too NSFW for my comfort.
 - Please ask before talking about ship related things if I'm playing a cosplay character.
 - I don't do RP unless its a funny bit I feel like doing.
+- Cosplay ponies I have may have pronouns that differ from canon (or common headcanons), 
 
 **IWC / Interact With Caution**
 - Voices of the Void fans. (I am a VOTV fan, but i do not participate in most of the community and do not associate with the drama. I do not condone any horrible actions or behavior of anyone in the community, developers included.)
