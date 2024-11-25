@@ -6,15 +6,15 @@ Call me Monster, Skulls, or the name of my character (if applicable)
 
 I am inclusive of Good Faith identities. Such as LGBTQ+ (contradictory identities included), Furries and Therians, Plural people of all origins (endogenic and willogenic inclided),
 
-BYI (Before You Interact): 
+**BYI / Before You Interact**: 
 - I often wait for people to say things to me first to know if they want to interact.
-- I don't mind being "booped" or "kissed" in games, though if it happens excessively I may hide you.
+- I don't mind being "booped" or "kissed" in games, though if it happens excessively I may ask you to stop or hide you.
 - I don't like being tightly packed in large crowds. If a crowd grows too much I may move or leave.
 - I will automatically hide ponies that are too NSFW for my comfort.
 - Please ask before talking about ship related things if I'm playing a cosplay character.
 - I don't do RP unless its a funny bit I feel like doing.
 
-IWC / Interact With Caution
+**IWC / Interact With Caution**
 - Voices of the Void fans. (I am a VOTV fan, but i do not participate in most of the community and do not associate with the drama. I do not condone any horrible actions or behavior of anyone in the community, developers included.)
 - Hazbin Hotel/Helluva Boss fans (Issues revolving creator drama)
 - Attack On Titan fans (Issues with the media's contents)
@@ -22,14 +22,15 @@ IWC / Interact With Caution
 - Harry Potter fans (Issues with creator and media.) / Do NOT interact if you support JK Rowling.
 - Dream SMP fans (Issues with creator drama)
 
-DNI / Do Not Interact (or i will block you permanently)
+**DNI / Do Not Interact** (or i will block you permanently)
 - Harmful Paraphilias (yknow, the ones that are illegal. get therapy /genuine /serious)
-- Racist, Homophobic, Transphobic, Ableist, Zionist, Nazi ect ect
+- Racist, Homophobic, Transphobic, Intersexist, Ableist, Zionist, Nazi, Xenophobic, ect ect
+- "Super Straight" or "Super Gay" because those were made up for the sake of being transphobic.
 - Radqueer/Radinclus (wary of because of the more extreme/harmful forms of radqeer)
 - Anti-Endo, Anti-Created Plurality,
 - Ai generated content (images, music, writing, ect) supporter/user
 - Crypto Currency / NFT buyer, seller, creator, ect,
-- Elon Musk or Mr Beast supporter.
+- Elon Musk or Mr Beast supporter. (Will auto-hide if you're pony is based on them, even if it's a joke.)
 
 my dni goes both ways. if ive read your bio and you are someone i do not want to interact with (or someone who would not want to interact with me) i will block you to be polite.
 
