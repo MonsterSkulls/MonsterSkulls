@@ -4,6 +4,10 @@ Please use masculine or gender neutral terminology when referring to me.
 
 Call me Monster, Skulls, or the name of my character (if applicable)
 
+Sleeping = AFK / Off Tab (i accidentally press it sometimes so if i sleep for like a couple seconds im not AFK)
+
+I have my chat range on very low and usually keep my zoom at x3, if you're not near me / not whispering I might miss your message.
+
 I am inclusive of Good Faith identities. Such as LGBTQ+ (contradictory identities included), Furries and Therians, Plural people of all origins (endogenic and willogenic inclided),
 
 **BYI / Before You Interact**: 
