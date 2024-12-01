@@ -22,11 +22,14 @@ I am inclusive of Good Faith identities. Such as LGBTQ+ (contradictory identitie
 
 **IWC / Interact With Caution**
 - Voices of the Void fans. (I am a VOTV fan, but i do not participate in most of the community and do not associate with the drama. I do not condone any horrible actions or behavior of anyone in the community, developers included.)
+- Mouthwashing fans (Fandom drama issues)
 - Hazbin Hotel/Helluva Boss fans (Issues revolving creator drama)
 - Attack On Titan fans (Issues with the media's contents)
 - South Park fans (Issues with the media's contents)
 - Harry Potter fans (Issues with creator and media.) / Do NOT interact if you support JK Rowling.
 - Dream SMP fans (Issues with creator drama)
+
+  honestly, as long as you're critical about your interests and fandom, i dont really care what media youre into unless it is actively harmful to real living beings.
 
 **DNI / Do Not Interact** (or i will block you permanently)
 - Harmful Paraphilias (yknow, the ones that are illegal. get therapy /genuine /serious)
