@@ -20,7 +20,7 @@ I am inclusive of Good Faith identities. Such as LGBTQ+ (contradictory identitie
 - I don't do RP unless its a funny bit I feel like doing.
 - Cosplay ponies I have may have pronouns that differ from canon (or common headcanons), 
 
-**IWC / Interact With Caution**
+**IWC / Interact With Caution** - (If you are critical of your interests and fandoms you're fine, these are ones im wary around)
 - Voices of the Void fans. (I am a VOTV fan, but i do not participate in most of the community and do not associate with the drama. I do not condone any horrible actions or behavior of anyone in the community, developers included.)
 - Mouthwashing fans (Fandom drama issues)
 - Hazbin Hotel/Helluva Boss fans (Issues revolving creator drama)
@@ -28,8 +28,6 @@ I am inclusive of Good Faith identities. Such as LGBTQ+ (contradictory identitie
 - South Park fans (Issues with the media's contents)
 - Harry Potter fans (Issues with creator and media.) / Do NOT interact if you support JK Rowling.
 - Dream SMP fans (Issues with creator drama)
-
-  honestly, as long as you're critical about your interests and fandom, i dont really care what media youre into unless it is actively harmful to real living beings.
 
 **DNI / Do Not Interact** (or i will block you permanently)
 - Harmful Paraphilias (yknow, the ones that are illegal. get therapy /genuine /serious)
