@@ -10,12 +10,15 @@ I have my chat range on very low and usually keep my zoom at x3, if you're not n
 
 I am inclusive of Good Faith identities. Such as LGBTQ+ (contradictory identities included), Furries and Therians, Plural people of all origins (endogenic and willogenic inclided),
 
+I will automatically permanently block someone if their DNI list applies to me or is dissagreeable to me. I do this to be respectful of that users boundaries and no hard feelings are meant. Please treat me with that same respect.
+
 **BYI / Before You Interact**: 
 - I often wait for people to say things to me first to know if they want to interact.
-- I don't mind being "booped" or "kissed" in game, though if it happens excessively I may ask you to stop or hide you.
+- I don't mind being "booped" or "kissed" in game, though if it happens excessively I may ask you to stop or temporarilly hide you.
+- I might kiss avatars I like, its always in a /platonic way, and I *will not* do this if you have DNT (Do Not Touch) or similar in your name (Or in the description of a linked account)
 - If I change to a grass/dirt/water colored pony, I do not want to be interacted with.
 - I don't like being tightly packed in large crowds. If a crowd grows too much I may move or leave.
-- I will automatically hide ponies that are too NSFW for my comfort.
+- I will automatically hide ponies that are too NSFW for my comfort. Including names or behaviours.
 - Please ask before talking about ship related things if I'm playing a cosplay character.
 - I don't do RP unless its a funny bit I feel like doing.
 - Cosplay ponies I have may have pronouns that differ from canon (or common headcanons), 
