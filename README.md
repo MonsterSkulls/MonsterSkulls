@@ -15,6 +15,7 @@ I will automatically permanently block someone if their DNI list applies to me o
 **BYI / Before You Interact**: 
 - I often wait for people to say things to me first to know if they want to interact.
 - I don't mind being "booped" or "kissed" in game, though if it happens excessively I may ask you to stop or temporarilly hide you.
+- If I am not comfortable with my pony being cuddled or covered, I will move when someone tries to. Repeated attempts may get that player temporarilly hidden.
 - I might kiss avatars I like, its always in a /platonic way, and I *will not* do this if you have DNT (Do Not Touch) or similar in your name (Or in the description of a linked account)
 - If I change to a grass/dirt/water colored pony, I do not want to be interacted with.
 - I don't like being tightly packed in large crowds. If a crowd grows too much I may move or leave.
