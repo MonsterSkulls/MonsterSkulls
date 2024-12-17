@@ -34,16 +34,18 @@ I will automatically permanently block someone if their DNI list applies to me o
 - Dream SMP fans (Issues with creator drama)
 
 **DNI / Do Not Interact** (or i will block you permanently)
-- Harmful Paraphilias (yknow, the ones that are illegal. get therapy /genuine /serious)
+- "Pro-Contact" mindset towards Harmful Paraphilias (get therapy /genuine /serious)
 - Racist, Homophobic, Transphobic, Intersexist, Ableist, Zionist, Nazi, Xenophobic, ect ect
 - "Super Straight" or "Super Gay" because those were made up for the sake of being transphobic.
-- Radqueer/Radinclus (wary of because of the more extreme/harmful forms of radqeer)
+- Radqueer/Radinclus (wary of because of the more extreme/harmful forms of radqueer)
 - Anti-Endo, Anti-Created Plurality,
 - Ai generated content (images, music, writing, ect) supporter/user
 - Crypto Currency / NFT buyer, seller, creator, ect,
 - Elon Musk or Mr Beast supporter. (Will auto-hide if you're pony is based on them, even if it's a joke.)
 
 my dni goes both ways. if ive read your bio and you are someone i do not want to interact with (or someone who would not want to interact with me) i will block you to be polite.
+
+I (mostly) do not care about the kinds of fiction someone enjoys. I may still block someone based on the things they talk about or post for the sake of my own comfort. I'd rather someone use fiction as a way to explore darker topics than to repress those feelings and end up hurting real people.
 
 i do not condone harassment in the slightest, it is not acceptable to doxx, threaten, suicide bait, or intentionally traumatize/trigger someone. If you do that kinda shit, im blocking you.
 
