@@ -1,4 +1,4 @@
-hi, we are Monsterskuls, a plural collective. we're also therian
+hi, we are Monsterskulls, a plural collective. we're also therian. We have TWO hosts. so dont ask who the "original" is.
 
 please refer to us by current pronouns in name or with it/they/he if none are shown
 
