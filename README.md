@@ -2,7 +2,7 @@ hi, we are Monsterskulls, a plural collective. we're also therian. We have TWO h
 
 please refer to us by current pronouns in name or with it/they/he if none are shown
 
-we *firmly* believe endogenic plurality is real and valid. we Will block anti-endos.
+we *firmly* believe endogenic plurality is real and valid. fakeclaimers get blocked on sight.
 
 we have fictives, please be respectful to them and dont assume things about them based on their sources.
 
