@@ -1,4 +1,5 @@
 hi, i/we are MonsterSkulls. we are a plural collective
+
 refer to us by current pronouns in name or with it/they/he if none are shown
 
 we *firmly* believe endogenic plurality is real and valid. we Will block anti-endos
