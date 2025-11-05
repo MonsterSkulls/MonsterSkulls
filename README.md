@@ -1,4 +1,4 @@
-hi, i/we are MonsterSkulls. we are a plural collective
+hi, i/we are MonsterSkulls. we are a plural collective. we're also therian
 
 refer to us by current pronouns in name or with it/they/he if none are shown
 
