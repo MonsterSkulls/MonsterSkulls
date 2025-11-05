@@ -1,6 +1,6 @@
-hi, i/we are MonsterSkulls. we are a plural collective. we're also therian
+hi, we are Monsterskuls, a plural collective. we're also therian
 
-refer to us by current pronouns in name or with it/they/he if none are shown
+please refer to us by current pronouns in name or with it/they/he if none are shown
 
 we *firmly* believe endogenic plurality is real and valid. we Will block anti-endos.
 
