@@ -1,12 +1,8 @@
-hi, we are Monsterskulls, a plural collective. we're also therian. We have TWO hosts, dont ask who the "original" is.
-
-please refer to us by current pronouns in name or with it/they/he if none are shown
-
-we *firmly* believe endogenic plurality is real and valid. fakeclaimers get blocked on sight
-
-we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
-
-we do want to talk to people but social anxieties make it hard unless someone talks first, we may not be good at keeping up conversation
+the basics: we're a plural collective. we're also therian. We have TWO hosts, dont ask who the "original" is.
+- if our current character/skin has pronouns listed in their name, refer to us with those,
+- we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
+- we do want to talk to people but social anxieties make it hard unless someone talks first, we may not be good at keeping up conversation
+- we *firmly* believe endogenic plurality is real and valid. fakeclaimers get blocked on sight
 
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
