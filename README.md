@@ -1,4 +1,4 @@
-the basics: we're a plural collective. we're also therian. We have TWO hosts, dont ask who the "original" is.
+hyello, we're a plural collective. we're also therian. We have TWO hosts, dont ask who the "original" is.
 - if our current character/skin has pronouns listed in their name, refer to us with those,
 - we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
 - we do want to talk to people but social anxieties make it hard unless someone talks first, we may not be good at keeping up conversation
