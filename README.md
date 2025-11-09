@@ -12,6 +12,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 - would *Strongly* prefer radqueer users not interact, *specifically ones who support harmful identities* DNi please.
 - nsfw skins get hidden for 24 hours, or permanently if we see it repeatedly
 - i hide people often so if im sitting near someone dont assume i know or am talking to them.
+- i also dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area
 
 <!---
 MonsterSkulls/MonsterSkulls is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
