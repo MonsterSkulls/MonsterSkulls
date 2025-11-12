@@ -3,7 +3,6 @@ hyello, we're a plural collective. we're also therian. We have TWO hosts, dont a
 - we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
 - we do want to talk to people but social anxieties make it hard unless someone talks first, we may not be good at keeping up conversation
 - we *firmly* believe endogenic plurality is real and valid. fakeclaimers get blocked on sight
-  - brains are infinitely complex 4 dimensional objects which are severely improbable to grasp full understanding of
 
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
