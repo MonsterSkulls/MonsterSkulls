@@ -10,7 +10,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 **BYi** (before you interact)
 - we dont fucking care about shipping discourse we just block/mute people if something makes us uncomfortable, fictional characters are fictional. dont label us as being any stance. if this bothers you, block us, if you're too agressive with your stances and disrespect people's boundaries over it, we'll block you.
 - saying again, we firmly believe endogenic systems are real. fakeclaimers and sysmeds get blocked.
-- would *Strongly* prefer [radqueer](https://lgbtqia.wiki/wiki/Radqueer) users not interact, *specifically ones who support harmful identities* DNi please.
+- would *Strongly* prefer [radqueer](https://lgbtqia.wiki/wiki/Radqueer) users **not interact,** *specifically ones who support harmful identities* DNi please.
 - nsfw skins get hidden for 24 hours, or permanently if we see it repeatedly
 - i hide people often so if im sitting near someone dont assume i know or am talking to them.
 - i also dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area
