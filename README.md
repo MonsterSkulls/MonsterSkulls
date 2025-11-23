@@ -16,7 +16,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
 **Keep in Mind:** (aka byi / before you interact)
 - we dont give a shit abt shipping discourse. don't label us as any stance bcus people cant agree what some of them mean. we just think its stupid that people will send death threats over what fictional characters someone drew kissing or whatever. just block/mute the tags (or artists) of the stuff you dont like. the block button is free! we use it all the time!
-- we dont share our age publicly. the closest you'll get is that im old enough to have owned a VHS tape of Osmosis Jones
+- we dont share our age publicly. we're old enough to be here thats all you need to know.
 - we block freely and without mercy. 24 hours for minor offences (like nsfw skins) or permanently for major ones.
 - because we hide people often, if im sitting near someone dont assume i know or am talking to them, or know they're even there.
 - we dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area or associate with the groups that gather there.
