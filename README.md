@@ -2,7 +2,7 @@ hyello, we're a plural collective. we're also therian. We have TWO hosts, dont a
 - if our current character/skin has pronouns listed in their name, refer to us with those,
 - we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
 - we do want to talk to people but social anxieties make it hard unless someone talks first, we may not be good at keeping up conversation
-- we *firmly* believe endogenic plurality is real and valid. fakeclaimers get blocked on sight
+- we *firmly* believe endogenic plurality is real and valid. fakeclaimers get blocked on sight.
 
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
@@ -13,6 +13,14 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 - nsfw skins get hidden for 24 hours, or permanently if we see it repeatedly
 - i hide people often so if im sitting near someone dont assume i know or am talking to them.
 - i also dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area. i just like observing people so i wander around areas with a lot of players
+
+**DNi**: (do not interact)
+- system medicalists
+- users who are anti-endogenic or anti-willogenic
+- users who put "disorder fakers" in their dni
+- users who are BOTH anti-endo and say "fakeclaimers dni" its hypocritical as shit
+- i will say it 1 million times anti-endos Fuck Off.
+- not an exhaustive list or anything i just want to make a point
 
 <!---
 MonsterSkulls/MonsterSkulls is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
