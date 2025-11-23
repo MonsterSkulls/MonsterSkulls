@@ -1,4 +1,4 @@
-hyello, we're a plural collective. we're also therian. We have TWO hosts, dont ask who the "original" is.
+hyello, we're a plural collective. we're also therian. We have TWO hosts, dont ask who the "original" is. we have a [renty page](https://rentry.co/MonsterSkulls) which has a list of some stuff we like
 - if our current character/skin has pronouns listed in their name, refer to us with those,
 - characters/skins with an ampersand (&) symbol or "plural" in the name are representative of headmates of ours
 - we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
@@ -8,7 +8,7 @@ hyello, we're a plural collective. we're also therian. We have TWO hosts, dont a
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
 **BYi** (before you interact)
-- we dont fucking care about shipping discourse we just block/mute people if something makes us uncomfortable, fictional characters are fictional. dont label us as being any stance. if this bothers you, block us, if you're too agressive with your stances and disrespect people's boundaries over it, we'll block you.
+- *we dont fucking care about shipping discourse* we just block/mute people if something makes us uncomfortable, fictional characters are fictional. dont label us as being any stance. if this bothers you, block us, if you're too agressive with your stances and disrespect people's boundaries over it, we'll block you.
 - saying again, we firmly believe endogenic systems are real. fakeclaimers and sysmeds get blocked.
 - would *Strongly* prefer [radqueer](https://lgbtqia.wiki/wiki/Radqueer) users **not interact,** *specifically ones who support harmful identities* DNi please.
 - i dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area. i just like observing people so i wander around areas with a lot of players
