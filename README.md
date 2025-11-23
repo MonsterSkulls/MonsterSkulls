@@ -1,27 +1,25 @@
 hyello, we're a plural collective. we're also therian. We have TWO hosts, dont ask who the "original" is. we have a [renty page](https://rentry.co/MonsterSkulls) which has a list of some stuff we like
-- if our current character/skin has pronouns listed in their name, refer to us with those,
-- characters/skins with an ampersand (&) symbol or "plural" in the name are representative of headmates of ours
+- names that have "&", "plural", and/or "sys" in the name are representative of headmates we have.
 - we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
 - we do want to talk to people but social anxieties make it hard unless someone talks first, we may not be good at keeping up conversation
 - we *firmly* believe endogenic plurality is real and valid. fakeclaimers get blocked on sight.
 
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
-**BYi** (before you interact)
-- *we dont fucking care about shipping discourse* we just block/mute people if something makes us uncomfortable, fictional characters are fictional. dont label us as being any stance. if this bothers you, block us, if you're too agressive with your stances and disrespect people's boundaries over it, we'll block you.
-- saying again, we firmly believe endogenic systems are real. fakeclaimers and sysmeds get blocked.
-- would *Strongly* prefer [radqueer](https://lgbtqia.wiki/wiki/Radqueer) users **not interact,** *specifically ones who support harmful identities* DNi please.
-- i dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area. i just like observing people so i wander around areas with a lot of players
+**DNi / Do NOT interact:** (or you'll face the wrath of my scarab (block button))
+- anti-endos or fakeclaimers of any kind
+- [radqueer](https://lgbtqia.wiki/wiki/Radqueer) users (specifically ones who support harmful identities)
+- people who are against "contradictory"/"complex" labels (eg: lesboys, afab transfems, ect)
+- intersexists, [exorsexists](https://lgbtqia.wiki/wiki/Exorsexism), Transmedicalists
+- users that ai-generate content, images, text, music. yes this includes c.ai (and similar) users, write a fanfic with your keyboard,
+- not an exhaustive list. we block freely.
+
+**Keep in Mind:** (aka byi / before you interact)
+- we dont give a shit abt shipping discourse. don't label us as any stance bcus people cant agree what some of them mean. we just think its stupid that people will send death threats over what fictional characters someone drew kissing or whatever. just block/mute the tags (or artists) of the stuff you dont like.
+- we dont share our age publicly. the closest you'll get is that im old enough to have owned a VHS tape of Osmosis Jones
 - we block freely and without mercy. 24 hours for minor offences (like nsfw skins) or permanently for major ones.
 - because we hide people often, if im sitting near someone dont assume i know or am talking to them, or know they're even there.
-
-**DNi**: (do not interact)
-- system medicalists
-- users who are anti-endogenic
-- users who put "disorder fakers" in their dni
-- users who are BOTH anti-endo and say "fakeclaimers dni" its hypocritical as shit
-- i will say it 1 million times. anti-endos do not interact.
-- not an exhaustive list or anything i just want to make a point.
+- we dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area or associate with the groups that gather there.
 
 <!---
 MonsterSkulls/MonsterSkulls is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
