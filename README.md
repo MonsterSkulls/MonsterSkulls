@@ -1,7 +1,7 @@
 hyello, we're a plural collective. we're also therian. We have TWO hosts, dont ask who the "original" is. we have a [renty page](https://rentry.co/MonsterSkulls) which has a list of some stuff we like
 - names that have "&", "plural", and/or "sys" in the name are representative of headmates we have.
 - we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
-- we do want to talk to people but social anxieties make it hard unless someone talks first, we may not be good at keeping up conversation
+- we do want to talk to people, but we're not great at starting conversations
 - we *firmly* believe endogenic plurality is real and valid. fakeclaimers get blocked on sight.
 
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
