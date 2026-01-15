@@ -1,5 +1,6 @@
 hyello, we're a plural collective. we're also therian. We have TWO hosts, dont ask who the "original" is. we have a [renty page](https://rentry.co/MonsterSkulls) which has a list of some stuff we like
 - some avatars we use are representative of headmates we have. you can look at our [pronouns,cc page](https://pronouns.cc/@MonsterSkulls) to see some of them
+- also set up a [pluralkit,xyz](https://pluralkit.xyz/f/xzjxco) for fronting (if its "switched out" that means fronters are private or unknown), it might not always be up-to-date though
 - we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
 - the fictives we have sometimes use our cosplay avatars of their sources but sometimes that's someone else, if they have "plural", "sys", or "&" in the name, thats a guy (/gender neutral) and not a character
 - we do want to talk to people, but we're not great at starting conversations
