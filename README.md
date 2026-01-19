@@ -16,9 +16,11 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 - users that ai-generate content, images, text, music. yes this includes c.ai (and similar) users, write a fanfic with your keyboard,
 - not an exhaustive list. we block freely.
 
+- for plural people with some members that would fall under our dni but others who don't, use your own discretion when deciding to interact or not.
+
 **Keep in Mind:** (aka byi / before you interact)
 - we dont give a shit abt shipping discourse. don't label us as any stance bcus people cant agree what some of them mean. we just think its stupid that people will send death threats over the kinds of fiction people like. just block/mute the tags (or artists) of the stuff you dont like. the block button is free! we use it all the time!
-- if i see someone using the word """proshitter""" in their dni theres like a 60% chance i'll block over that, thats just unnecessary. if you wanna insult people do it better lol.
+- if i see someone using the word """proshitter""" (or other overly hostile/rude language) in their dni theres like a 60% chance i'll block over that, thats just unnecessary.
 - we dont share our age publicly. we're old enough to be here thats all you need to know.
 - we block freely and without mercy. 24 hours for minor offences (like nsfw skins) or permanently for major ones.
 - because we hide people often, if im sitting near someone dont assume i know or am talking to them, or know they're even there.
