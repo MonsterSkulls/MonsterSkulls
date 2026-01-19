@@ -15,7 +15,6 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 - intersexists, [exorsexists](https://lgbtqia.wiki/wiki/Exorsexism), Transmedicalists
 - users that ai-generate content, images, text, music. yes this includes c.ai (and similar) users, write a fanfic with your keyboard,
 - not an exhaustive list. we block freely.
-
 - for plural people with some members that would fall under our dni but others who don't, use your own discretion when deciding to interact or not.
 
 **Keep in Mind:** (aka byi / before you interact)
