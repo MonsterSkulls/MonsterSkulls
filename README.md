@@ -27,6 +27,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
 PLEASE **stop making your bios have blurry text** or extremely complicated fonts (like cursive) on rentry/carrd/strawpage/ect **I cant fucking read them.** also please make sure your images dont cover important text.
 - if your bio *gives me a headache* while im looking at it. *Im not reading it*
+- im also not checking twitter or tik tok links for your bio. i dont use those websites and they disallow me from looking at pages without logging in.
 
 <!---
 MonsterSkulls/MonsterSkulls is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
