@@ -26,6 +26,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 - we dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area or associate with the groups that gather there.
 
 PLEASE **stop making your bios have blurry text** or extremely complicated fonts (like cursive) on rentry/carrd/strawpage/ect **I cant fucking read them.** also please make sure your images dont cover important text.
+- if your bio *gives me a headache* while im looking at it. *Im not reading it*
 
 <!---
 MonsterSkulls/MonsterSkulls is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
