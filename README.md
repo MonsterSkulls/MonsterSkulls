@@ -11,7 +11,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 **DNi / Do NOT interact:** (or you'll face the wrath of my scarab (block button))
 - anti-endos or fakeclaimers of any kind
 - [radqueer](https://lgbtqia.wiki/wiki/Radqueer) users (specifically ones who support harmful identities)
-- people who are against "contradictory"/"complex" labels (eg: lesboys, afab transfems, ect)
+- people who are against "contradictory"/"complex" labels (eg: lesboys, afab transfems, ect) or against good-faith identities. the pupgender tumblr user is not hurting you by being a puppy.
 - intersexists, [exorsexists](https://lgbtqia.wiki/wiki/Exorsexism), Transmedicalists
 - users that ai-generate content, images, text, music. yes this includes c.ai (and similar) users, write a fanfic with your keyboard,
 - not an exhaustive list. we block freely.
