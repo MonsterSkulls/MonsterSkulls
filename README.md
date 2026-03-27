@@ -4,7 +4,11 @@ hyello, we're a plural collective. we're also therian. We have TWO hosts, dont a
 - we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
 - the fictives we have sometimes use our cosplay avatars of their sources but sometimes that's someone else, if they have "plural", "sys", or "&" in the name, thats a guy (/gender neutral) and not a character
 - we do want to talk to people, but we're not great at starting conversations
-- **endogenic systems are real.** science is always learning new things, and the brain is an extremely complicated and understudied subject. Not all endogenic systems say they have DID, but DID is a *dissociative* disorder, and people can dissociate for any reason. Endogenic systems can still *have* trauma, it's just not what originally formed their system.
+
+**Endogenic systems are real.** 
+- science is always learning new things, and the brain is an extremely complicated and understudied subject.
+- Endogenic systems can still *have* trauma, it's just not what originally formed their system.
+- Not all endogenic systems say they have DID, but DID is a *dissociative* disorder, and people can dissociate for any reason. 
 
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
