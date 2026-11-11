@@ -29,7 +29,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 - because we hide people often, if im sitting near someone dont assume i know or am talking to them, or know they're even there.
 - we dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area or associate with the groups that gather there.
 
-if im in a cosplay pony and you walk up to me to tell me how much you hate the thing my character is from, unprompted, i am going to hide you. i dont care.
+if im in a cosplay pony and someone walks up to me to tell me how much they hate the thing my character is from, unprompted, i am going to hide them. i dont care.
 
 PLEASE **stop making your bios have blurry text** or extremely complicated fonts (like cursive) on rentry/carrd/strawpage/ect **I cant fucking read them.** also please make sure your images dont cover important text.
 - if your bio *gives me a headache* while im looking at it. *Im not reading it*
