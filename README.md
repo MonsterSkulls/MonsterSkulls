@@ -13,7 +13,8 @@ hyello, we're a plural collective. we're also therian. We have multiple hosts, d
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
 **DNi / Do NOT interact:** (or you'll face the wrath of my scarab (block button))
-- anti-endos or fakeclaimers of any kind. anyone that thinks endogenic systems are "delusional" and therefore not worthy of respect or support are the *actual* ableist ones. this shouldnt be a point of "discourse" this is people's lives. 
+- anti-endos or fakeclaimers of any kind. this shouldnt be a point of "discourse" this is people's lives. 
+- anyone that uses "delusional" or "mentally ill" **as an insult** or way to deny someone's experience, feelings, or identity. that's ableism.
 - [radqueer](https://lgbtqia.wiki/wiki/Radqueer) community (specifically, the supporters of the harmful/dangerous sides of it)
 - people who are against "contradictory"/"complex" labels or good-faith identities. the pupgender tumblr user is not hurting you by being a puppy.
 - intersexists, [exorsexists](https://lgbtqia.wiki/wiki/Exorsexism), Transmedicalists
