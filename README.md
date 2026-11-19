@@ -15,7 +15,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 **DNi / Do NOT interact:** (or you'll face the wrath of my scarab (block button))
 - anti-endos or fakeclaimers of any kind. this shouldnt be a point of "discourse" this is people's lives. 
 - anyone that uses "delusional" or "mentally ill" **as an insult** or way to deny someone's experience, feelings, or identity. that's ableism.
-- [radqueer](https://lgbtqia.wiki/wiki/Radqueer) community (not always an instant block, because i mean specifically the supporters of the harmful/dangerous/immoral sides of it. i have some nuanced opinions but i might not always have the energy or desire to elaborate)
+- [radqueer](https://lgbtqia.wiki/wiki/Radqueer) community (specifically the supporters of the harmful/dangerous/immoral sides of it. i have some nuanced opinions but i might not always have the energy or desire to elaborate. more of an "int with caution" tbh.)
 - people who are against "contradictory"/"complex" labels or good-faith identities. the pupgender tumblr user is not hurting you by being a puppy.
 - intersexists, [exorsexists](https://lgbtqia.wiki/wiki/Exorsexism), Transmedicalists
 - users that ai-generate content, images, text, music. yes this includes c.ai (and similar) users, write a fanfic with your keyboard,
