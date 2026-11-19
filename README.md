@@ -15,7 +15,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 **DNi / Do NOT interact:** (or you'll face the wrath of my scarab (block button))
 - anti-endos or fakeclaimers of any kind. this shouldnt be a point of "discourse" this is people's lives. 
 - anyone that uses "delusional" or "mentally ill" **as an insult** or way to deny someone's experience, feelings, or identity. that's ableism.
-- [radqueer](https://lgbtqia.wiki/wiki/Radqueer) community (specifically, the supporters of the harmful/dangerous sides of it)
+- [radqueer](https://lgbtqia.wiki/wiki/Radqueer) community (not always an instant block, because i mean specifically the supporters of the harmful/dangerous/immoral sides of it. i have some nuanced opinions but i might not always have the energy or desire to elaborate)
 - people who are against "contradictory"/"complex" labels or good-faith identities. the pupgender tumblr user is not hurting you by being a puppy.
 - intersexists, [exorsexists](https://lgbtqia.wiki/wiki/Exorsexism), Transmedicalists
 - users that ai-generate content, images, text, music. yes this includes c.ai (and similar) users, write a fanfic with your keyboard,
@@ -26,7 +26,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 - we dont give a shit abt shipping discourse. don't label us as any stance bcus people cant agree what some of them mean. we just think its stupid that people will send death threats over the kinds of fiction people like. just block/mute the tags (or artists) of the stuff you dont like. the block button is free! we use it all the time!
 - if i see someone using the word """proshitter""" (or other overly hostile/rude language) in their dni theres like a 60% chance i'll block over that, thats just unnecessary.
 - we dont share our age publicly. we're old enough to be here thats all you need to know.
-- we block freely and without mercy. 24 hours for minor offences (like nsfw skins) or permanently for major ones.
+- we block freely and without mercy. 24 hours for minor offenses (like nsfw skins) or permanently for major ones.
 - because we hide people often, if im sitting near someone dont assume i know or am talking to them, or know they're even there.
 - we dont know anything about ponytown "territories"/areas so if you see me in like some area "claimed" by a fandom/community dont assume i know whos "claimed" that area or associate with the groups that gather there.
 
