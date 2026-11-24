@@ -3,7 +3,7 @@ hyello, we're a plural collective. we're also therian. We have multiple hosts, d
 - also set up a [pluralkit,xyz](https://pluralkit.xyz/f/xzjxco) for fronting (if its "switched out" that means fronters are private or unknown), it might not always be up-to-date though
 - we have fictives, please be respectful to them and dont assume things about them (or us as a whole) based on their sources.
 - the fictives we have sometimes use our cosplay avatars of their sources but sometimes that's someone else, if they have "plural", "sys", or "&" in the name, thats a guy (/gender neutral) and not a character
-- we do want to talk to people, but we're not great at starting conversations
+- we DO want to talk to people, but we're not great at starting conversations
 
 **Endogenic systems are real.** 
 - science is always learning new things, and the brain is an extremely complicated and understudied subject.
