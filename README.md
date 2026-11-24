@@ -21,6 +21,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 - users that ai-generate content, images, text, music, ect. yes this includes c.ai (and similar) users, write a fanfic with your keyboard.
 - not an exhaustive list. we block freely.
 - for plural people with some members that would fall under our dni but others who don't, use your own discretion when deciding to interact or not.
+- we dont always remember to check peoples bios / sometimes cant find/read their dni. if we accidentally cross something, sorry about that! you can just block us
 
 **Keep in Mind:** (aka byi / before you interact)
 - we dont give a shit abt shipping discourse. don't label us as any stance bcus people cant agree what some of them mean. we just think its stupid that people will send death threats over the kinds of fiction people like. just block/mute the tags (or artists) of the stuff you dont like. the block button is free! we use it all the time!
