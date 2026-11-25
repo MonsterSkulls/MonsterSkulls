@@ -8,7 +8,7 @@ hyello, we're a plural collective. we're also therian. We have multiple hosts, d
 **Endogenic systems are real.** 
 - science is always learning new things, and the brain is an extremely complicated and understudied subject.
 - Endogenic systems can still *have* trauma, it's just not what originally formed their system.
-- Not all endogenic systems say they have DID, but DID is a *dissociative* disorder, and people can dissociate for reasons other than trauma,
+- Not all endogenic systems say they have DID, but DID is a *dissociative* disorder, and people can dissociate for various reasons
 
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
