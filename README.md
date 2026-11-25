@@ -8,7 +8,7 @@ hyello, we're a plural collective. we're also therian. We have multiple hosts, d
 **Endogenic systems are real.** 
 - science is always learning new things, and the brain is an extremely complicated and understudied subject.
 - Endogenic systems can still *have* trauma, it's just not what originally formed their system.
-- Not all endogenic systems say they have DID, but DID is a *dissociative* disorder, and people can dissociate for any reason. 
+- Not all endogenic systems say they have DID, but DID is a *dissociative* disorder, and people can dissociate for reasons other than trauma,
 
 profile picture is from Pipe Up. a webcomic which can be found on tumblr
 
@@ -16,7 +16,7 @@ profile picture is from Pipe Up. a webcomic which can be found on tumblr
 - anti-endos or fakeclaimers of any kind. this shouldnt be a point of "discourse" this is people's lives. 
 - anyone that uses "delusional" or "mentally ill" **as an insult** or way to deny someone's experience, feelings, or identity. that's ableism.
 - [radqueer](https://lgbtqia.wiki/wiki/Radqueer) community (specifically the supporters of the harmful/dangerous/immoral sides of it. i have some nuanced opinions but i might not always have the energy or desire to elaborate. more of an "int with caution" tbh.)
-- people who are against "contradictory"/"complex" labels or good-faith identities. (people can be bi and lesbian at the same time if those are the words that fit them best idk why people are weird abt bi lesbians existing. not your sexuality not your problem??)
+- people who are against "contradictory"/"complex" labels or good-faith identities.
 - intersexists, [exorsexists](https://lgbtqia.wiki/wiki/Exorsexism), Transmedicalists
 - users that ai-generate content, images, text, music, ect. yes this includes c.ai (and similar) users, write a fanfic with your keyboard.
 - not an exhaustive list. we block freely.
